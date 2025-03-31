@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Sai Rupa Paladugu
 
-![Linkedinimage](https://github.com/user-attachments/assets/91026144-8d5f-499f-ad55-f0e428f483ae)
+![Linkedinimage](https://github.com/user-attachments/assets/91026144-8d5f-499f-ad55-f0e428f483ae)  
 📧 [psr.paladugu@gmail.com](mailto:psr.paladugu@gmail.com)
 
 ---
